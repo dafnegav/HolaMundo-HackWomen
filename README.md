@@ -29,3 +29,8 @@ Taller desarrollado por el **Google Developer Student Club de la Universidad de 
 - El cine
 - Leer
 - Salir a correr
+
+## mi contribucion Dafne Gaviria Arcila
+-jugar con mi bebe
+-ir a la playa
+-soñar
